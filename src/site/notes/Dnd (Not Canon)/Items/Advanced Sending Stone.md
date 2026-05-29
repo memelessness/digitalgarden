@@ -9,6 +9,6 @@ The person speaking to him is [[Dnd (Not Canon)/The Entity\|The Entity]] that ex
 
 “Dream for me, and find me, in the bones of the Earth.” - Said to Skink on [[Dnd (Not Canon)/Notes/2025-08-10 Summary\|2025-08-10 Summary]]
 
-[[Dnd (Not Canon)/The Entity\|The Entity]] can be found in the [[People/Court of Thrones\|Court of Thrones]] after the illusion from [[Dnd (Not Canon)/Mizzette\|Mizzette]] dissipates and a tear into the [[Places/Planes of Existance/Shadowlands\|Shadowlands]] is created.
+[[Dnd (Not Canon)/The Entity\|The Entity]] can be found in the [[Dnd (Not Canon)/Court of Thrones\|Court of Thrones]] after the illusion from [[Dnd (Not Canon)/Mizzette\|Mizzette]] dissipates and a tear into the [[Places/Planes of Existance/Shadowlands\|Shadowlands]] is created.
 
 #dnd
