@@ -11,7 +11,7 @@ Characters:[[People/MAIN STORY RELEVENT/Aidoneus\|Aidoneus]], [[People/MAIN STOR
 
 Moss paused. “It’s bad form of me to make it so obvious. I apologize.” 
 
-“You don’t have to act like you’re my formal lord and host, Moss. You can act like my friend.” He produced a small pipe from his pocket, along with a small wax-lined paper tube. “I know we don’t talk all the time or anything, but I still consider you as such.” He popped the cork out of the tube and set about packing the bowl of the pipe with casual care. He waited in the silence that followed, for Moss to gather xir thoughts. 
+“You don’t have to act like you’re my formal Lord and host, Moss. You can act like my friend.” He produced a small pipe from his pocket, along with a small wax-lined paper tube. “I know we don’t talk all the time or anything, but I still consider you as such.” He popped the cork out of the tube and set about packing the bowl of the pipe with casual care. He waited in the silence that followed, for Moss to gather xir thoughts. 
 
 “If I tell you the whole thing…” Moss started, and abandoned the sentence like a sinking ship. “I can’t do that.” 
 
@@ -28,7 +28,6 @@ Moss paused. “It’s bad form of me to make it so obvious. I apologize.”
 “Maybe I should look into some of my own,” Moss grumbled, passing the pipe back after another small pull. The taste of it was earthy, lingering at the back of xir throat and on the end of the exhales through xir nose. “I just sit there and– worry, I guess. Try to plan for when things go wrong.” 
 
 “Like they have been?” Aid asked, the pipe in the corner of his mouth. 
-
 
 “No, no, things are fine. Things are actually going well. I meant for this to be happening. I… I succeeded.” 
 
@@ -70,7 +69,7 @@ Moss blinked at Aidoneus. “... Huh.”
 
 “What?”
 
-“No, I just really thought that when I admitted that, you’d think I was like– a terrible person or something.”
+“No, I just really thought that when I admitted that, you’d think I was like– a terrible person, or something.”
 
 Aid upended the pipe over the edge of the deck, knocking the ashes out into the section of gravel that bordered the foundation with a series of authoritative taps. “On a certain level, ALL people are terrible. And all people are good. Black and white anything is sort of a lie, really, and a failure of a system of thinking. One sort-of-not-good thing about anybody doesn’t mean the entire individual is worth condemning. And honestly, this desire of yours isn’t even bad. I’d call it a neutral thing with some negative consequences. You have feelings and wants, and sometimes those feelings and wants are at odds with other peoples’ wants and feelings, and that like, sucks, but it’s just an aspect of existing. You’re not wrong for having them.” 
 
@@ -90,7 +89,7 @@ Moss nodded, haltingly. The idea would take some getting used to.
 
 “And?”
 
-“... this is awful.” Moss murmured. 
+“... this is awful,” Moss murmured. 
 
 “Say it anyways, I love awful people.” 
 
@@ -98,8 +97,7 @@ Moss looked up at the stars. “I think I love Artemis too.”
 
 Aidoneus didn’t react, simply reaching into the leather pouch again. “What’s she like? She was quiet at dinner.” 
 
-Moss closed xir eyes. “She’s… warm. I think. We’ve spent a lot of time together, since Cosmos is usually so busy. I tried not to like her, I really did– to just, you know, stay civil and distant, not give her any trouble. But she keeps— seeking me out, and talking to me, and I don’t have the heart to say no, not when she’s so genuine, and I know she’s rather shy, so having her ask ME for company is a big deal for her, and… I just… find myself looking forward to when she’s going to find me next. I find myself doing things around the house with the hopes that she’ll come and ask me to explain what I’m doing. I am, unfortunately, happy in her company, happier than I am in most company. When she opens up, she just– radiates this sort of simple, easy joy that’s so hard to ignore.
-Xe took a shaky breath. “What am I supposed to do about that? She’s engaged to my closest friend and– dare we forget– my lord who I am bound by honor to serve. She’s more than untouchable, she’s… she may as well not exist.” 
+Moss closed xir eyes. “She’s… warm. I think. We’ve spent a lot of time together, since Cosmos is usually so busy. I tried not to like her, I really did– to just, you know, stay civil and distant, not give her any trouble. But she keeps— seeking me out, and talking to me, and I don’t have the heart to say no, not when she’s so genuine, and I know she’s rather shy, so having her ask ME for company is a big deal for her, and… I just… find myself looking forward to when she’s going to find me next. I find myself doing things around the house with the hopes that she’ll come and ask me to explain what I’m doing. I am, unfortunately, happy in her company, happier than I am in most company. When she opens up, she just– radiates this sort of simple, easy joy that’s so hard to ignore." Xe took a shaky breath. “What am I supposed to do about that? She’s engaged to my closest friend and– dare we forget– my lord who I am bound by honor to serve. She’s more than untouchable, she’s… she may as well not exist.” 
 
 “You know, that is horrible. Oh–no– Not horrible of YOU, mind you. The SITUATION is horrible.” 
 
@@ -117,7 +115,7 @@ Moss chose not to share that xe had been putting in extra work already, so Cosmo
 
 “Yeah. I do know it.” 
 
-“Yeah. Sooooo… wake up, babes, what are we gonna do about that?” Aid made a gesture with his hands, waving them back and forth a little. “Because we can’t keep doing this, obviously.” 
+“Yeah. Sooooo… you're awake, babes, what are we gonna do about that?” Aid made a gesture with his hands, waving them back and forth a little. “Because you know you can’t keep doing this, obviously.” 
 
 “What’s the other option?” Moss asked, exasperated. “What could I possibly do?” 
 
@@ -127,7 +125,7 @@ Moss chose not to share that xe had been putting in extra work already, so Cosmo
 
 “Going to bed with someone, yes, just like that. You don’t have to want to be with them forever, you know. You truly can just suck a dick and get gone. It’s fun, actually. It’s something to do with all that… energy. I know it’s not entirely appealing when it’s not the person you’re all hung up on, but it can do wonders for at least starting to move on, or just pass the time.” 
 
-“I’ve never had too much of an appetite for all of that.” Moss admitted. “It’s just never been… an option for me exactly? It’s not that I have no desire, I just… I’m busy, I suppose. I wouldn’t even know where to begin finding out what I’d want.” 
+“I’ve never had too much of an appetite for all of that,” Moss admitted. “It’s just never been… an option for me exactly? It’s not that I have no desire, I just… I’m busy, I suppose. I wouldn’t even know where to begin finding out what I’d want.” 
 
 Aid paused, took in the surroundings for a moment, and nodded once decisively.
 
@@ -159,4 +157,12 @@ Moss must’ve frowned, because then Aid continued, “Don’t think I’m not e
 
 Moss nodded, trying to fix xir face. That was disappointment showing on there, wasn’t it? “I might lose my nerve by then, but I’ll try.” 
 
-“If you lose your nerve, darling, then that just means I was right to have you wait.” Aid smiled, and Moss had to work harder to fix xir face. “Now, I’m going to smoke another bowl. You’re welcome to share it with me, or you can go inside, off to bed. Either suits me just fine, just remember that I’m not carrying you inside if you fall asleep out here. Too dainty and gorgeous.” 
+“If you lose your nerve, darling, then that just means I was right to have you wait.” Aid smiled, and Moss had to work harder to fix xir face. “Now, I’m going to smoke another bowl. You’re welcome to share it with me, or you can go inside, off to bed. Either suits me just fine, just remember that I’m not carrying you inside if you fall asleep out here. Too dainty and gorgeous.”
+
+
+
+
+
+
+
+
